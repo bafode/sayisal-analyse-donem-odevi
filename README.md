@@ -1,0 +1,1 @@
+# sayisal-analyse-donem-odevi
